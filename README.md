@@ -1,8 +1,4 @@
-[![IMG-0384.jpg](https://i.postimg.cc/j5SN9vfg/IMG-0384.jpg)](https://postimg.cc/SXHJY6DC)
-<p align="center">
 
- 
-ty [@fans-town](https://github.com/fans-town) for this opportunity! <3
 
 <p align="center">
 
@@ -11,3 +7,11 @@ ty [@fans-town](https://github.com/fans-town) for this opportunity! <3
 <img sarc="2500" height="2500" src="https://files.catbox.moe/r3m9rh.png"/>
 
 <p align="center">
+
+
+[![IMG-0384.jpg](https://i.postimg.cc/j5SN9vfg/IMG-0384.jpg)](https://postimg.cc/SXHJY6DC)
+<p align="center">
+
+ <p align="center">
+  
+ty [@fans-town](https://github.com/fans-town) for this opportunity! <3
