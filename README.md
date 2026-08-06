@@ -8,6 +8,6 @@ ty [@fans-town](https://github.com/fans-town) for this opportunity! <3
 
 
 <p align="center">
-<img sarc="2500" height="2500" src="https://files.catbox.moe/ll2hnf.gif"/>
+<img sarc="2500" height="2500" src="https://files.catbox.moe/r3m9rh.png"/>
 
 <p align="center">
