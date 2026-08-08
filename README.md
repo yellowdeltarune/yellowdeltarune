@@ -18,6 +18,6 @@
 
  <p align="center">
   
-tysm [@fans-town](https://github.com/fans-town) , [@pt-friendships](https://github.com/pt-friendships) , [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) ! <3
+tysm [@fans-town](https://github.com/fans-town) , [@pt-friendships](https://github.com/pt-friendships) , [@pt-loveforfictional](https://github.com/pt-loveforfictional) ,[@ponytownyumeshippers](https://github.com/ponytownyumeshippers) ! <3
 
  <p align="center">
