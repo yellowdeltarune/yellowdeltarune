@@ -1,6 +1,6 @@
 
 <div align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=50&duration=3455&pause=15001&color=819de3&center=true&vCenter=true&width=1000&height=100&lines=WOULD+YOU+ARREST+ME+YELLOW?+%2C;"Typing SVG" /></a></div>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=50&duration=3455&pause=15002&color=819de3&center=true&vCenter=true&width=1000&height=100&lines=WOULD+YOU+ARREST+ME+YELLOW?+%2C;"Typing SVG" /></a></div>
 
 
 <p align="center">
