@@ -7,7 +7,7 @@
 <tr>
 
 <td width="280" align="center">
-<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=criminells&color=C4BB3E" />
+<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=criminells&color=C4A33D" />
 
 <img src="https://files.catbox.moe/fgoqlg.png?raw=true" width="550"/>
 
