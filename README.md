@@ -13,7 +13,7 @@
 
 <p align="center">
 
-  <i>All credits to</b> the artist!</i>
+  <i>All credits to</b> the artist / graphic made by @wolfcutiee!</i>
 
 </p>
 
