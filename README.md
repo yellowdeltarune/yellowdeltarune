@@ -30,7 +30,7 @@ c+h is alright (friends can do this freely.) , kissing (unless giving us complim
 
    we also have a typing quirk we cant use which is the /// so instead you might see us use &: or ./// only due to the / being a command list on pt!!!! , dni is the common dni but please dni romeo x xara, romeo x jesse shippers, we had to face alot of weird people who shipped those things and romesse reminds me of my past relationships that we so very much don't wanna remember :(
 
-   we are an non-sharing blue deltarune shipper, sorry doubles !!!! i dont feel comfy sharing em, we also yumeship with romeo from mcsm but only non-sharing because of our jack fictkin, so we don't really know how to feel about that! ^_^ , fictkins / kins / fictheart of romeo from mcsm also need to dni, we dont feel comfy :)
+   we are an non-sharing blue deltarune shipper, sorry doubles !!!! i dont feel comfy sharing em, we also yumeship with romeo from mcsm but only non-sharing because of our jack fictkin (WE DONT MIND ROMEO DOUBLES UNLESS our jack is there), so we don't really know how to feel about that! ^_^ , fictkins / kins / fictheart of romeo from mcsm also need to dni, we dont feel comfy :)
 
    i am 15!!!! anyone under 13 needs to dni (do not interact) && we also don't mind above 20 don't make it weird or you're getting blocked instantly! 
 
