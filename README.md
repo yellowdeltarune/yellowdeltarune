@@ -21,8 +21,7 @@
 <details>
 <summary>⠀ ⠀ ⠀!!⠀ ⠀info  ⠀</summary>   ⠀ ⠀
   
-   ⠀ ⠀ ⠀⠀ ⠀⠀ matt or yellow, ⠀ ⠀ ⠀,,⠀ ⠀ ⠀ please see me as yellow thanks!!!! ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
-   i am a fictionkin && yumekin, i have.. bpd && depression && trust issues for the most part i am offtab , or cuddling w/ my best friend or my sibling! you can int but mcsm fans might have to interact with caution due to the amount of weird people in this fandom.... due to me being a romeo fictkin we feel uncomfy with the concept of people doing weird things to our skins.. (this happened alot so!)
+   ⠀ ⠀ ⠀⠀ ⠀⠀ matt or yellow, ⠀ ⠀ ⠀,,⠀ ⠀ ⠀ please see me as yellow thanks!!!! ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀i am a fictionkin && yumekin, i have.. bpd && depression && trust issues for the most part i am offtab , or cuddling w/ my best friend or my sibling! you can int but mcsm fans might have to interact with caution due to the amount of weird people in this fandom.... due to me being a romeo fictkin we feel uncomfy with the concept of people doing weird things to our skins.. (this happened alot so!)
 
 c+h is alright (friends can do this freely.) , kissing (unless giving us compliments on our skin/using it as a act of friendlyness) /booping constantly isn't.
 
