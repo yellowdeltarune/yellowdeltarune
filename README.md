@@ -1,13 +1,27 @@
 <div align="center">
 
-this is a wip sorry
 
-<img src="https://64.media.tumblr.com/a53ac3935c36e5620309fe52991232b7/7748a4304ac7e4c0-c4/s250x400/16ed8ecf515de7f78f1ca5463743b5cbfdd22c01.gif"/>
+<div align="center">
+
+<table>
+<tr>
+
+<td width="280" align="center">
+<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=criminells&color=FFBA6A" />
+
+<img src="https://files.catbox.moe/k7xfjd.png?raw=true" width="550"/>
+
+<p align="center">
+
+  <i>All credits to</b> the artist!</i>
+
+</p>
+
 
 <details>
 <summary>⠀ ⠀ ⠀!!⠀ ⠀info  ⠀</summary>   ⠀ ⠀
   
-   ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀matt or yellow, ⠀ ⠀ ⠀,,⠀ ⠀ ⠀ please see me as yellow thanks!!!! ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
+   ⠀ ⠀ ⠀⠀ ⠀⠀ matt or yellow, ⠀ ⠀ ⠀,,⠀ ⠀ ⠀ please see me as yellow thanks!!!! ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
    ⠀ ⠀ ⠀⠀ ⠀ ⠀ i am a fictionkin && yumekin, i have.. bpd && depression && trust issues for the most part i am offtab , or cuddling w/ my best friend or my sibling! you can int but mcsm fans might have to interact with caution due to the amount of weird people in this fandom.... due to me being a romeo fictkin we feel uncomfy with the concept of people doing weird things to our skins.. (this happened alot so!)
 
 c+h is alright (friends can do this freely.) , kissing (unless giving us compliments on our skin/using it as a act of friendlyness) /booping constantly isn't.
@@ -18,7 +32,7 @@ c+h is alright (friends can do this freely.) , kissing (unless giving us complim
 
    i am 15!!!! anyone under 13 needs to dni (do not interact) && we also don't mind above 20 don't make it weird or you're getting blocked instantly! 
 
-   we also have a BUNCH of issues, and we have suspected adhd && autism, also very-hinted ptsd from personal issues so we always encourage you to interact with caution, we can lash out at small things && big things, or if something reminds us of a bad time we don't want to remember, so i can be alot to handle but we ' re mainly nice for the most part.
+   we also have a BUNCH of issues, and we have suspected adhd && autism, also very-hinted ptsd from personal issues so we always encourage you to interact with caution, we can lash out at small things && big things, or if something reminds us of a bad time we don't want to remember, so i can be alot to handle but we ' re mainly nice for the most part. (WE ARENT A SYSTEM, we like to infer ourselves as we/our sometimes.)
 
 
 
