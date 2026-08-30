@@ -10,7 +10,7 @@ this is a wip sorry
    ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀matt or yellow, ⠀ ⠀ ⠀,,⠀ ⠀ ⠀ please see me as yellow thanks!!!! ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
    ⠀ ⠀ ⠀⠀ ⠀ ⠀ i am a fictionkin && yumekin, i have.. bpd && depression && trust issues for the most part i am offtab , or cuddling w/ my best friend or my sibling! you can int but mcsm fans might have to interact with caution due to the amount of weird people in this fandom.... due to me being a romeo fictkin we feel uncomfy with the concept of people doing weird things to our skins.. (this happened alot so!)
 
-c+h is alright (friends can do this freely.) , kissing (unless giving us compliments on our skin) /booping constantly isn't.
+c+h is alright (friends can do this freely.) , kissing (unless giving us compliments on our skin/using it as a act of friendlyness) /booping constantly isn't.
 
    we also have a typing quirk we cant use which is the /// so instead you might see us use &: or ./// only due to the / being a command list on pt!!!! , dni is the common dni but please dni romeo x xara, romeo x jesse shippers, we had to face alot of weird people who shipped those things and romesse reminds me of my past relationships that we so very much don't wanna remember :(
 
