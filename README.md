@@ -11,6 +11,7 @@
 
 <img src="https://files.catbox.moe/fgoqlg.png?raw=true" width="550"/>
 
+<sup><sub> tysm [@fans-town](https://github.com/fans-town) , [@pt-loveforfictional](https://github.com/pt-loveforfictional)  , [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) , [@pt-friendships](https://github.com/pt-friendships) </sub></sup>  
 <p align="center">
 
   <i>All credits to</b> the artist / graphic made by [@wolfcutiee](https://github.com/wolfcutiee) !</i>
@@ -19,9 +20,11 @@
 
 
 <details>
-<summary>⠀ ⠀ ⠀!!⠀ ⠀info  ⠀</summary>   ⠀ ⠀
-  
-   ⠀ ⠀ ⠀⠀ ⠀⠀ matt or yellow, ⠀ ⠀ ⠀,,⠀ ⠀ ⠀ please see me as yellow thanks!!!! ⠀ ⠀ ⠀&&⠀ ⠀ ⠀ ⠀i am a fictionkin && yumekin, i have.. bpd && depression && trust issues for the most part i am offtab , or cuddling w/ my best friend or my sibling! you can int but mcsm fans might have to interact with caution due to the amount of weird people in this fandom.... due to me being a romeo fictkin we feel uncomfy with the concept of people doing weird things to our skins.. (this happened alot so!)
+<summary>⠀ ⠀ ⠀!!⠀ ⠀info  ⠀</summary>   ⠀
+<p align="center">⠀FYI: (WE ARENT A SYSTEM WE JUST USE WE/OURS to infer ourselves)
+  ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀
+ 
+⠀ ⠀ ⠀ ⠀ matt or yellow, ⠀ ⠀ ⠀,,⠀ ⠀ ⠀ please see me as yellow thanks!!!! ⠀ ⠀ ⠀&&⠀ ⠀ ⠀ ⠀i am a fictionkin && yumekin, i have.. bpd && depression && trust issues for the most part i am offtab , or cuddling w/ my best friend or my sibling! you can int but mcsm fans might have to interact with caution due to the amount of weird people in this fandom.... due to me being a romeo fictkin we feel uncomfy with the concept of people doing weird things to our skins.. (this happened alot so!)
 
 c+h is alright (friends can do this freely.) , kissing (unless giving us compliments on our skin/using it as a act of friendlyness) /booping constantly isn't.
 
@@ -31,7 +34,7 @@ c+h is alright (friends can do this freely.) , kissing (unless giving us complim
 
    i am 15!!!! anyone under 13 needs to dni (do not interact) && we also don't mind above 20 don't make it weird or you're getting blocked instantly! 
 
-   we also have a BUNCH of issues, and we have suspected adhd && autism, also very-hinted ptsd from personal issues so we always encourage you to interact with caution, we can lash out at small things && big things, or if something reminds us of a bad time we don't want to remember, so i can be alot to handle but we ' re mainly nice for the most part. (WE ARENT A SYSTEM, we like to infer ourselves as we/our sometimes.)
+   we also have a BUNCH of issues, and we have suspected adhd && autism, also very-hinted ptsd from personal issues so we always encourage you to interact with caution, we can lash out at small things && big things, or if something reminds us of a bad time we don't want to remember, so i can be alot to handle but we ' re mainly nice for the most part. 
 
 
 
