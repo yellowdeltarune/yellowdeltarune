@@ -9,7 +9,7 @@
 <td width="280" align="center">
 <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=criminells&color=FFBA6A" />
 
-<img src="https://files.catbox.moe/k7xfjd.png?raw=true" width="550"/>
+<img src="https://files.catbox.moe/oac0v3.png?raw=true" width="550"/>
 
 <p align="center">
 
