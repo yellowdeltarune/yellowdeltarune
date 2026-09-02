@@ -11,7 +11,7 @@
 
 <img src="https://files.catbox.moe/fgoqlg.png?raw=true" width="550"/>
 
-<sup><sub> tysm [@fans-town](https://github.com/fans-town) , [@pt-loveforfictional](https://github.com/pt-loveforfictional)  , [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) , [@pt-friendships](https://github.com/pt-friendships) </sub></sup>  
+<sup><sub> tysm [@fans-town](https://github.com/fans-town) , [@pt-loveforfictional](https://github.com/pt-loveforfictional)  , [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) , [@pt-friendships](https://github.com/pt-friendships) , [@kaotown](https://github.com/kaotown) </sub></sup>  
 <p align="center">
 
   <i>All credits to</b> the artist / graphic made by [@wolfcutiee](https://github.com/wolfcutiee) !</i>
