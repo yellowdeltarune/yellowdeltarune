@@ -62,3 +62,6 @@ main: mcsm, mcyt, mc in general ok? , deltarune && undertale (mostly undertale f
 
   
 side fandoms: bendy and the ink machine, cuphead, any tumblr askblog (myth of the machine, the bendystraw show, etc) , rick && morty , project sekai (vocaloid + utau too) , sailor moon , tadc , sonic , pokemon , murder drones , chiikawa , mlp , inuyasha , wander over yonder , ramna , any nintendo game (link, mario, etc) same goes with any sega game, kingdom of hearts , any roblox myth / some roblox asym games , alnst/zomst , fpe , adventure time , fionna && cake , youtubers (mcyt, roblox ytubers, etc ask for these), creepypastas, stomach book , cucumber quest , epic the musical , epic mickey , epic mickey 2 , felix the cat , betty boop , any old cartoons . ( && probably more fandoms just forgot, we are happy to talk about any of these <3)
+
+<img src="https://file.garden/aI75NaCdkxABOlXk/sig/blueplush.png"/>
+<img src="https://file.garden/aRWpD6C0BHrrKsQP/Plushies/yellow.png"/>
