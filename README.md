@@ -9,7 +9,9 @@
 
 <sup><sub> $\mathtt{YellowBluxls}$ </sub></sup> <sup><sub> $\mathtt{CEO}$ </sub></sup>
 
-<img src="https://64.media.tumblr.com/72f0e10cb276da86014676eb0cd0e1ec/587848500712b03f-56/s250x400/286034d989b3d43d81f6618735d0233d62444dee.webp" width="65"/>
+<img src="https://media.tenor.com/mvYCskzBM-YAAAAi/rouxls-rouxls-kaard.gif" width="36"/>
+<img src="https://64.media.tumblr.com/7278998c90429994172fae27560d82f7/c8b2e47712573aa4-cd/s250x400/7a9dd7f2aa4709c0fbef4af7b03d385cd9a51b38.gif" width="36"/>
+<img src="https://media.tenor.com/ye6LSAu8DewAAAAi/deltarune-deltarune-chapter-5.gif" width="36"/>
 
 <sup><sub> [other ceo , aka our bff](https://github.com/thewardenmcsm)
 
