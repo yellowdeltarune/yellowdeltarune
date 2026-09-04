@@ -9,9 +9,9 @@
 
 <sup><sub> $\mathtt{YellowBluxls}$ </sub></sup> <sup><sub> $\mathtt{CEO}$ </sub></sup>
 
+<img src="https://64.media.tumblr.com/72f0e10cb276da86014676eb0cd0e1ec/587848500712b03f-56/s250x400/286034d989b3d43d81f6618735d0233d62444dee.webp" width="65"/>
 
-
-<img src="https://64.media.tumblr.com/0b5349e90310d4c4cde4c8350b397c5a/84a9bf85efcdcf05-c4/s250x400/c3049cf570aca4e3c2a98b181243e07db81a4b23.gif?raw=true" width="250"/>
+<sup><sub> [other ceo , aka our bff](https://github/com/thewardenmcsm)
 
 <p align="center">
 
