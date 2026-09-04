@@ -7,7 +7,7 @@
 <td width="280" align="center">
   
 
- $\mathtt{YellowBluxls}$  <sup><sub> $\mathtt{CEO}$ </sub></sup>
+<sup><sub> $\mathtt{YellowBluxls}$ </sub></sup> <sup><sub> $\mathtt{CEO}$ </sub></sup>
 
 
 
