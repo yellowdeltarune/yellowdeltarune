@@ -18,6 +18,7 @@
 
 
 
+
 <p align="center">
 
 
@@ -27,14 +28,21 @@
 </td>
 
 
-<div align="center">
+
+
+
+
 
 <table>
 <tr>
 
-<td width="280" align="center">
-<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=criminells&color=fcc603" />
-${\textsf{\color{#fc9803} PONY TOWN'S YELLOW}}$ 
+<td width="500" align="center">
+<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=JUSTICE&color=fcc603" />
+<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=INTEGRITY&color=2c3f9e" />
+
+| ${\textsf{\color{#fc9803} PONY TOWN'S YELLOW}}$ '' ${\textsf{\color{#2c3f9e} BLUES HUSBAND}}$ |
+
+
 <img src="https://files.catbox.moe/0nipkz.png?raw=true" width="550"/>
 <img src="https://64.media.tumblr.com/0ebf57536dcc5dd7f8aa76b9d49fc7dc/011f5887f166ddcc-c3/s640x960/172598b36f5d22e1809c71837764eeabb92a550c.pnj"/>
   
