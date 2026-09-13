@@ -18,7 +18,7 @@
 <sup><sub> [other ceo , aka our bff](https://github.com/thewardenmcsm)
 
 
- <img src="https://files.catbox.moe/orzuhy.png" width="255">
+
 
 <p align="center">
 
@@ -85,7 +85,7 @@ c+h is alright/heavily enc (friends can do this freely.) , kissing (unless givin
    we also have a BUNCH of issues, and we have suspected adhd && autism, also very-hinted ptsd from personal issues so we always encourage you to interact with caution, we can lash out at small things && big things, or if something reminds us of a bad time we don't want to remember, so i can be alot to handle but we ' re mainly nice for the most part. 
 
 
-
+ <img src="https://files.catbox.moe/orzuhy.png" width="255">
 
 
 <details>
