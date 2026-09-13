@@ -33,7 +33,7 @@
 <tr>
 
 <td width="280" align="center">
-<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=criminells&color=C4A33D" />
+<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=criminells&color=fcc603" />
 ${\textsf{\color{#fc9803} PONY TOWN'S YELLOW}}$ 
 <img src="https://files.catbox.moe/0nipkz.png?raw=true" width="550"/>
 
