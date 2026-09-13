@@ -37,10 +37,12 @@
 <tr>
 
 <td width="500" align="center">
-<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=JUSTICE&color=fff49e" /> x
-<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=INTEGRITY&color=705cd1" />
+<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=JUSTICE&color=ffd900" /> x
+<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=INTEGRITY&color=3c21d1" />
 
-| ${\textsf{\color{#fff49e} PONY TOWN'S YELLOW}}$ '' ${\textsf{\color{#705cd1} BLUES HUSBAND}}$ |
+| ${\textsf{\color{#ffd900} PONY TOWN'S YELLOW}}$ '' ${\textsf{\color{#3c21d1} BLUES HUSBAND}}$ |
+
+
 
 
 <img src="https://file.garden/aI75NaCdkxABOlXk/yellows/yellowRalsPoint.gif"/>
@@ -51,7 +53,11 @@
 <img src="https://file.garden/aI75NaCdkxABOlXk/yellows/yellowKneeling.png"/>
 <img src="https://file.garden/aI75NaCdkxABOlXk/yellows/yellowDigItUp.gif"/>
 
-  
+
+
+
+ <img src="https://files.catbox.moe/orzuhy.png" width="255">
+ 
 <sup><sub> tysm [@fans-town](https://github.com/fans-town) , [@pt-loveforfictional](https://github.com/pt-loveforfictional)  , [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) , [@pt-friendships](https://github.com/pt-friendships) , [@kaotown](https://github.com/kaotown) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) , [@Ponytowns-ships](https://github.com/Ponytowns-ships) , [@PT-FANtastic-hall](https://github.com/PT-FANtastic-hall) , [@pt-ship-nominations](https://github.com/pt-ship-nominations) , [@choco-town](https://github.com/choco-town), [@pt-heavyfictkin](https://github.com/pt-heavyfictkin), [@music-town](https://github.com/music-town) </sub></sup>  
 <p align="center">
 
