@@ -46,7 +46,7 @@
 <img src="https://files.catbox.moe/6cyezh.png?raw=true" width="550"/>
 
   
-<sup><sub> tysm [@fans-town](https://github.com/fans-town) , [@pt-loveforfictional](https://github.com/pt-loveforfictional)  , [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) , [@pt-friendships](https://github.com/pt-friendships) , [@kaotown](https://github.com/kaotown) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) , [@Ponytowns-ships](https://github.com/Ponytowns-ships) , [@PT-FANtastic-hall](https://github.com/PT-FANtastic-hall) , [@pt-ship-nominations](https://github.com/pt-ship-nominations) , [@choco-town](https://github.com/choco-town) </sub></sup>  
+<sup><sub> tysm [@fans-town](https://github.com/fans-town) , [@pt-loveforfictional](https://github.com/pt-loveforfictional)  , [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) , [@pt-friendships](https://github.com/pt-friendships) , [@kaotown](https://github.com/kaotown) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) , [@Ponytowns-ships](https://github.com/Ponytowns-ships) , [@PT-FANtastic-hall](https://github.com/PT-FANtastic-hall) , [@pt-ship-nominations](https://github.com/pt-ship-nominations) , [@choco-town](https://github.com/choco-town), [@pt-heavyfictkin](https://github.com/pt-heavyfictkin), [@music-town](https://github.com/music-town) </sub></sup>  
 <p align="center">
 
   <i>All credits to</b> the artist / follow my sibling [@wolfcutiee](https://github.com/wolfcutiee) !</i>
