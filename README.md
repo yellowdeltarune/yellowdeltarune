@@ -43,7 +43,7 @@
 | ${\textsf{\color{#fc9803} PONY TOWN'S YELLOW}}$ '' ${\textsf{\color{#2c3f9e} BLUES HUSBAND}}$ |
 
 
-<img src="https://files.catbox.moe/0nipkz.png?raw=true" width="550"/>
+<img src="https://files.catbox.moe/6cyezh.png?raw=true" width="550"/>
 <img src="https://64.media.tumblr.com/0ebf57536dcc5dd7f8aa76b9d49fc7dc/011f5887f166ddcc-c3/s640x960/172598b36f5d22e1809c71837764eeabb92a550c.pnj"/>
   
 <sup><sub> tysm [@fans-town](https://github.com/fans-town) , [@pt-loveforfictional](https://github.com/pt-loveforfictional)  , [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) , [@pt-friendships](https://github.com/pt-friendships) , [@kaotown](https://github.com/kaotown) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) , [@Ponytowns-ships](https://github.com/Ponytowns-ships) , [@PT-FANtastic-hall](https://github.com/PT-FANtastic-hall) , [@pt-ship-nominations](https://github.com/pt-ship-nominations) , [@choco-town](https://github.com/choco-town) </sub></sup>  
