@@ -38,7 +38,7 @@
 
 <td width="500" align="center">
 <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=JUSTICE&color=fcc603" />
-<img src="https://komarev.com/ghpvc/?username=honchodoors&label=INTEGRITY&color=2c3f9e" />
+<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=INTEGRITY&color=2c3f9e" />
 
 | ${\textsf{\color{#fc9803} PONY TOWN'S YELLOW}}$ '' ${\textsf{\color{#2c3f9e} BLUES HUSBAND}}$ |
 
