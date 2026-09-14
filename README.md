@@ -125,6 +125,17 @@ Was it wrong of me to not get boundaries out?: Yea, i could've done that but i f
 
 DONT go out of your way to harass them in any way, i just don't want to be friends with anyone whos friends with them.
 
+- Another reason now, because someone decided to go out of there way and make it worse for both parties
+<img width="537" height="162" alt="image" src="https://github.com/user-attachments/assets/ac1580b6-40fa-40cc-83be-67a9c2323e76" />
+
+<img width="510" height="238" alt="image" src="https://github.com/user-attachments/assets/5fd1147b-f0c6-438a-ba7e-4ed68dc223eb" />
+
+- My Replies (fyi i do use the r slur which i can say/reclaim.)
+<img width="536" height="667" alt="image" src="https://github.com/user-attachments/assets/79c56b6c-3ee1-4f99-a704-a007ebacacff" />
+<img width="530" height="274" alt="image" src="https://github.com/user-attachments/assets/b33820bf-86fd-4826-b803-2c603619a2e8" />
+
+so please don't go out of ur way to message ur friend telling them how i blocked you kris, if you're even like reading this or if their friend is, you handled this poorly. <3
+
 - - -
 
 
