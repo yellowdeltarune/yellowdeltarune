@@ -134,7 +134,9 @@ DONT go out of your way to harass them in any way, i just don't want to be frien
 <img width="536" height="667" alt="image" src="https://github.com/user-attachments/assets/79c56b6c-3ee1-4f99-a704-a007ebacacff" />
 <img width="530" height="274" alt="image" src="https://github.com/user-attachments/assets/b33820bf-86fd-4826-b803-2c603619a2e8" />
 
-so please don't go out of ur way to message ur friend telling them how i blocked you kris, if you're even like reading this or if their friend is, you handled this poorly. <3
+This also means they get people to stalk others accounts, so.. like this doesn't rlly look good!!
+
+so please don't go out of ur way to message ur friend telling them how i blocked you kris, if you're even like reading this or if their friend is, you handled this poorly. <3 
 
 - - -
 
