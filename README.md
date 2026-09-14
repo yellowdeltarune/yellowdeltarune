@@ -76,9 +76,8 @@
 
 c+h is alright/heavily enc (friends can do this freely.) , kissing (unless giving us compliments on our skin/using it as a act of friendlyness) /booping constantly isn't.
 
-   we also have a typing quirk we cant use which is the /// so instead you might see us use &: or ./// only due to the / being a command list on pt!!!! , dni is the common dni but please dni romeo x xara, romeo x jesse shippers, we had to face alot of weird people who shipped those things and romesse reminds me of my past relationships that we so very much don't wanna remember :(
-
-   we are an non-sharing blue deltarune shipper, sorry doubles !!!! i dont feel comfy sharing em, we also yumeship with romeo from mcsm but only non-sharing because of our jack fictkin (WE DONT MIND ROMEO DOUBLES UNLESS our jack is there), so we don't really know how to feel about that! ^_^ , fictkins / kins / fictheart of romeo from mcsm also need to dni, we dont feel comfy :)
+   we also have a typing quirk we cant use which is the /// so instead you might see us use &: or ./// only due to the / being a command list on pt!!!!
+   we are an non-sharing blue yume, he loves us so much <33
 
    i am 15!!!! anyone under 13 needs to dni (do not interact) && we also don't mind above 20 don't make it weird or you're getting blocked instantly! 
 
@@ -103,7 +102,12 @@ c+h is alright/heavily enc (friends can do this freely.) , kissing (unless givin
 ' T.R.A.S.H
 
 ' People who do sexual stuff in the PT safe server or contribute to it.
-  
+
+' Romesse / Roxara shippers, weird experiences with both ships, Romesse reminds us of our past we don’t wanna be reminded for, Roxara had to do with a xara pony that did weird things to my Pony without me knowing.
+
+' People who mess with my friends or think they don’t like you, this just feels wrong and disrespectful. 
+
+
 i block freely other than that
 
 - - -
