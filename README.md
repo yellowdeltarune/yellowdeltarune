@@ -88,6 +88,40 @@ c+h is alright/heavily enc (friends can do this freely.) , kissing (unless givin
  <img src="https://files.catbox.moe/orzuhy.png" width="255">
 
 
+
+
+<details>
+<summary>⠀ ⠀ ⠀!!⠀ ⠀DNI..  ⠀</summary> 
+
+
+' UNDER 13, OVER 20+ INTWC.
+
+' People who hate my favorite things (MCSM & DELTARUNE only)
+
+'Boundary Breakers
+
+' T.R.A.S.H
+
+' People who do sexual stuff in the PT safe server or contribute to it.
+  
+i block freely other than that
+
+- - -
+
+<p align="center">
+
+anyone who's friends with [@RAISE-UP-YOUR-BAT](https://github.com/RAISE-UP-YOUR-BAT) , 
+
+its very obvious that they have attachment issues yet aren't doing anything to yk .. actually stop them, or hide them (that's not rlly their fault to) but they made other people uncomfortable with their clinginess, including me! Also kept asking me to make biomler like 3 times from lower decks? I hardly watched the show and i said no already, but they still asked. I was very willing when i first met them & when i was told awareness about them, i had this creeping fear. They also always c+h'ed with me like anytime they got online or no matter where i was? (i don't have much friends on pt so this felt weird to me either way..)
+
+Was it wrong of me to not get boundaries out?: Yea, i could've done that but i felt very scared i was never the best for talks like that so i blocked them instead, i know they have good intentions but how they didn't try to fix their attachment issues and tried to get very close with me for the first week we known each other just made me scared. 
+
+DONT go out of your way to harass them in any way, i just don't want to be friends with anyone whos friends with them.
+
+- - -
+
+
+
 <details>
 <summary>⠀ ⠀ ⠀!!⠀ ⠀fandoms  ⠀</summary> 
 main: mcsm, mcyt, mc in general ok? , deltarune && undertale (mostly undertale fangames like undertale yellow) ,, roblox ( dandys world, phighting, sols rng, emotia, toons universe, sewh, shovelwares brain game, etc)⠀, 
