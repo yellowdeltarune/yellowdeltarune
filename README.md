@@ -121,7 +121,15 @@ i block freely other than that
 
 anyone who's friends with [@RAISE-UP-YOUR-BAT](https://github.com/RAISE-UP-YOUR-BAT) , 
 
-its very obvious that they have attachment issues yet aren't doing anything to yk .. actually stop them, or hide them (that's not rlly their fault to) but they made other people uncomfortable with their clinginess, including me! Also kept asking me to make biomler like 3 times from lower decks? I hardly watched the show and i said no already, but they still asked. I was very willing when i first met them & when i was told awareness about them, i had this creeping fear. They also always c+h'ed with me like anytime they got online or no matter where i was? (i don't have much friends on pt so this felt weird to me either way..) Even though c+h is mainly enc, i don't want it to an extreme...
+its very obvious that they have attachment issues yet aren't doing anything to yk .. actually stop them, or hide them (that's not rlly their fault to) but they made other people uncomfortable with their clinginess, including me! They were trying to move our friendship way too fast, and also did stuff without me asking like matching skins, please just take my word for it as i don't have picture proof but if u have seen me in the utdr area, you probably have seen me in the following of skins that they made to match with me with no proper reason or context.
+
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/def17925-772f-4ce7-9852-933e18c35127" />
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/a4622435-7807-4346-87d6-9ddb5f0eec44" />
+
+
+(DO NOT COPY THESE, I WILL BLOCK YOU IF U DO BTW.)
+
+They also loved to hide behind me whenever it would rather me a random person, or my bff and even with my irl sibling, which was weird, and i haven't been playing too long since my return on this game but nobody has done that, and they did it alot, i get their intentions were clear but someone informed me that they've been known for behavior like that and alot of people in this area has hidden Kris from what kris told me when we first met eachother.. so i was careful on the way i interacted but the way they reacted with mainly with me felt wrong & weird. Kris has been known to do this to others and if you'r friends with them please be careful!
 
 Was it wrong of me to not get boundaries out?: Yea, i could've done that but i felt very scared i was never the best for talks like that so i blocked them instead, i know they have good intentions but how they didn't try to fix their attachment issues and tried to get very close with me for the first week we known each other just made me scared. 
 
@@ -139,6 +147,8 @@ DONT go out of your way to harass them in any way, i just don't want to be frien
 This also means they get people to stalk others accounts, so.. like this doesn't rlly look good!!
 
 so please don't go out of ur way to message ur friend telling them how i blocked you kris, if you're even like reading this or if their friend is, you handled this poorly. <3 
+
+My Intentions aren't supposed to be like "OMG DONT BE FRIENDS WITH THIS PERSON OMG" but they need to help themselves and if you are friends with this person, please be careful! They need to help themselves instead of using their issues to make others uncomfy.
 
 - - -
 
