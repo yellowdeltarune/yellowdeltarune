@@ -72,7 +72,7 @@
 <p align="center">⠀FYI: (WE ARENT A SYSTEM WE JUST USE WE/OURS to infer ourselves)
   ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀
  
-⠀ ⠀ ⠀ ⠀ matt or yellow, ⠀ ⠀ ⠀,,⠀ ⠀ ⠀ please see me as yellow thanks!!!! ⠀ ⠀ ⠀&&⠀ ⠀ ⠀ ⠀i am a fictionkin && yumekin, i have.. bpd && depression && trust issues for the most part i am offtab , or cuddling w/ my best friend or my sibling! you can int but mcsm fans might have to interact with caution due to the amount of weird people in this fandom.... due to me being a romeo fictkin we feel uncomfy with the concept of people doing weird things to our skins.. (this happened alot so!)
+⠀ ⠀ ⠀ ⠀ matt or yellow, ⠀ ⠀ ⠀,,⠀ ⠀ ⠀ please see me as yellow thanks!!!! ⠀ ⠀ ⠀&&⠀ ⠀ ⠀ ⠀i am a fictionkin && yumekin, i have.. bpd && depression && trust issues for the most part i am offtab , or cuddling w/ my best friend or my sibling! you can int but mcsm fans might have to interact with caution due to the amount of weird people in this fandom.... due to me being a romeo fictkin we feel uncomfy with the concept of people doing weird things to our skins.. (this happened alot so!) 
 
 c+h is alright/heavily enc (friends can do this freely.) , kissing (unless giving us compliments on our skin/using it as a act of friendlyness) /booping constantly isn't.
 
@@ -118,7 +118,7 @@ i block freely other than that
 
 anyone who's friends with [@RAISE-UP-YOUR-BAT](https://github.com/RAISE-UP-YOUR-BAT) , 
 
-its very obvious that they have attachment issues yet aren't doing anything to yk .. actually stop them, or hide them (that's not rlly their fault to) but they made other people uncomfortable with their clinginess, including me! Also kept asking me to make biomler like 3 times from lower decks? I hardly watched the show and i said no already, but they still asked. I was very willing when i first met them & when i was told awareness about them, i had this creeping fear. They also always c+h'ed with me like anytime they got online or no matter where i was? (i don't have much friends on pt so this felt weird to me either way..)
+its very obvious that they have attachment issues yet aren't doing anything to yk .. actually stop them, or hide them (that's not rlly their fault to) but they made other people uncomfortable with their clinginess, including me! Also kept asking me to make biomler like 3 times from lower decks? I hardly watched the show and i said no already, but they still asked. I was very willing when i first met them & when i was told awareness about them, i had this creeping fear. They also always c+h'ed with me like anytime they got online or no matter where i was? (i don't have much friends on pt so this felt weird to me either way..) Even though c+h is mainly enc, i don't want it to an extreme...
 
 Was it wrong of me to not get boundaries out?: Yea, i could've done that but i felt very scared i was never the best for talks like that so i blocked them instead, i know they have good intentions but how they didn't try to fix their attachment issues and tried to get very close with me for the first week we known each other just made me scared. 
 
