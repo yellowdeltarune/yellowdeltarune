@@ -85,6 +85,7 @@ c+h is alright/heavily enc (friends can do this freely.) , kissing (unless givin
 
    we also have a BUNCH of issues, and we have suspected adhd && autism, also very-hinted ptsd from personal issues so we always encourage you to interact with caution, we can lash out at small things && big things, or if something reminds us of a bad time we don't want to remember, so i can be alot to handle but we ' re mainly nice for the most part. 
 
+We don't know how to confront correctly in any way, we will still try our best but if we can't think of anything, i simply won't bring it up. Due to the fear of losing loved ones & Fear of losing friends. & Our past experiences.
 
  <img src="https://files.catbox.moe/orzuhy.png" width="255">
 
