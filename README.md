@@ -131,9 +131,9 @@ its very obvious that they have attachment issues yet aren't doing anything to y
 
 They also loved to hide behind me whenever it would rather me a random person, or my bff and even with my irl sibling, which was weird, and i haven't been playing too long since my return on this game but nobody has done that, and they did it alot, i get their intentions were clear but someone informed me that they've been known for behavior like that and alot of people in this area has hidden Kris from what kris told me when we first met eachother.. so i was careful on the way i interacted but the way they reacted with mainly with me felt wrong & weird. Kris has been known to do this to others and if you'r friends with them please be careful!
 
-Was it wrong of me to not get boundaries out?: Yea, i could've done that but i felt very scared i was never the best for talks like that so i blocked them instead, i know they have good intentions but how they didn't try to fix their attachment issues and tried to get very close with me for the first week we known each other just made me scared. 
+Was it wrong of me to not get boundaries out?: Yea, i could've done that but i felt very scared i was never the best for talks like that so i blocked them instead, i know they have good intentions but how they didn't try to fix their attachment issues and tried to get very close with me for the first week we known each other just made me scared. But i don't even owe it up to them, its not my responsibility to have to deal with someone else's incompetence, although this might sound rude to say it is completely true and nobody should if its their own problem, you don't need to fix it because they need to fix it themselves.
 
-DONT go out of your way to harass them in any way, i just don't want to be friends with anyone whos friends with them.
+DONT go out of your way to harass them in any way, i just don't want to be friends with anyone whos friends with them. / spreading awareness for people who just pass by.
 
 - Another reason now, because someone decided to go out of there way and make it worse for both parties
 <img width="537" height="162" alt="image" src="https://github.com/user-attachments/assets/ac1580b6-40fa-40cc-83be-67a9c2323e76" />
