@@ -77,6 +77,8 @@
 c+h is alright/heavily enc (friends can do this freely.) , kissing (unless giving us compliments on our skin/using it as a act of friendlyness) /booping constantly isn't.
 
    we also have a typing quirk we cant use which is the /// so instead you might see us use &: or ./// only due to the / being a command list on pt!!!!
+
+
    we are an non-sharing blue yume, he loves us so much <33
 
    i am 15!!!! anyone under 13 needs to dni (do not interact) && we also don't mind above 20 don't make it weird or you're getting blocked instantly! 
