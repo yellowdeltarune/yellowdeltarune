@@ -64,7 +64,7 @@
 
   <i>All credits to</b> the artist / follow my sibling [@wolfcutiee](https://github.com/wolfcutiee) ! </i>
   
-<sup><sub> Please look in dni for a little warning/awareness for [@RAISE-UP-YOUR-BAT](https://github.com/RAISE-UP-YOUR-BAT) 
+<sup><sub> Please look in dni for a little warning/awareness for anyone who has come across [@RAISE-UP-YOUR-BAT](https://github.com/RAISE-UP-YOUR-BAT) 
 
 </p>
 
