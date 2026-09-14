@@ -64,7 +64,7 @@
 
   <i>All credits to</b> the artist / follow my sibling [@wolfcutiee](https://github.com/wolfcutiee) ! </i>
   
-<sup><sub> Please look in dni for a little warning/awareness for anyone who has come across [@RAISE-UP-YOUR-BAT](https://github.com/RAISE-UP-YOUR-BAT) 
+<sup><sub> Please look in dni for a little warning/awareness for anyone who has come across [was known as @RAISE-UP-YOUR-BAT is now @brutherfordceo](https://github.com/brutherfordceo ) 
 
 </p>
 
@@ -119,7 +119,7 @@ i block freely other than that
 
 <p align="center">
 
-anyone who's friends with [@RAISE-UP-YOUR-BAT](https://github.com/RAISE-UP-YOUR-BAT) , 
+anyone who's friends with [@brutherfordceo](https://github.com/brutherfordceo) , 
 
 its very obvious that they have attachment issues yet aren't doing anything to yk .. actually stop them, or hide them (that's not rlly their fault to) but they made other people uncomfortable with their clinginess, including me! They were trying to move our friendship way too fast, and also did stuff without me asking like matching skins, please just take my word for it as i don't have picture proof but if u have seen me in the utdr area, you probably have seen me in the following of skins that they made to match with me with no proper reason or context.
 
