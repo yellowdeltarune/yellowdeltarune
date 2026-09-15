@@ -146,7 +146,16 @@ DONT go out of your way to harass them in any way, i just don't want to be frien
 
 This also means they get people to stalk others accounts, so.. like this doesn't rlly look good!!
 
+ <img src="https://media.discordapp.net/attachments/1476777634817118269/1549371027644227665/Screenshot_20260915_114644_Tumblr.jpg?ex=6aaa73b6&is=6aa92236&hm=7217beae342ceeeb02e58f45f59592594f68b69462d15ceb3b0a22409dccee14&=&format=webp&width=628&height=1024"/>
+
+<img src="https://media.discordapp.net/attachments/1476777634817118269/1549371232271470753/Screenshot_20260915_114750_Tumblr.jpg?ex=6aaa73e7&is=6aa92267&hm=5c23929c12140e19055f1666cdc587e1c2c96ca7ad6497f2f1e5555bd0ddce27&=&format=webp&width=548&height=768"/>
+
+<img src="https://media.discordapp.net/attachments/1476777634817118269/1549371232997089340/Screenshot_20260915_114758_Tumblr.jpg?ex=6aaa73e7&is=6aa92267&hm=c7d74c4b579291331ab83011b6ea878dcb2b5fec690b7fec216a1bf403ae5817&=&format=webp&width=640&height=450"/> 
+
+They also made a post directed to me, i didnt treat them like a dog and i have no idea why it’s their first thought. How is anything gonna form in a week??? People dont owe dealing with ur unhealed attachment issues just bc ur friends btw… Also i guess i’m not allowed to have boundaries anymore because its weird to block people… like ok i guess!!
+
 so please don't go out of ur way to message ur friend telling them how i blocked you kris, if you're even like reading this or if their friend is, you handled this poorly. <3 
+
 
 My Intentions aren't supposed to be like "OMG DONT BE FRIENDS WITH THIS PERSON OMG" but they need to help themselves and if you are friends with this person, please be careful! They need to help themselves instead of using their issues to make others uncomfy.
 
