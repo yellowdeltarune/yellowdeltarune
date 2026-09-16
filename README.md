@@ -138,19 +138,38 @@ DONT go out of your way to harass them in any way, i just don't want to be frien
 - Another reason now, because someone decided to go out of there way and make it worse for both parties
 <img width="537" height="162" alt="image" src="https://github.com/user-attachments/assets/ac1580b6-40fa-40cc-83be-67a9c2323e76" />
 
+- - -
+
 <img width="510" height="238" alt="image" src="https://github.com/user-attachments/assets/5fd1147b-f0c6-438a-ba7e-4ed68dc223eb" />
+
+- - -
 
 - My Replies (fyi i do use the r slur which i can say/reclaim.)
 <img width="536" height="667" alt="image" src="https://github.com/user-attachments/assets/79c56b6c-3ee1-4f99-a704-a007ebacacff" />
+
+- - -
+
 <img width="530" height="274" alt="image" src="https://github.com/user-attachments/assets/b33820bf-86fd-4826-b803-2c603619a2e8" />
 
 This also means they get people to stalk others accounts, so.. like this doesn't rlly look good!!
 
  <img src="https://media.discordapp.net/attachments/1476777634817118269/1549371027644227665/Screenshot_20260915_114644_Tumblr.jpg?ex=6aaa73b6&is=6aa92236&hm=7217beae342ceeeb02e58f45f59592594f68b69462d15ceb3b0a22409dccee14&=&format=webp&width=628&height=1024"/>
 
+- - -
+
 <img src="https://media.discordapp.net/attachments/1476777634817118269/1549371232271470753/Screenshot_20260915_114750_Tumblr.jpg?ex=6aaa73e7&is=6aa92267&hm=5c23929c12140e19055f1666cdc587e1c2c96ca7ad6497f2f1e5555bd0ddce27&=&format=webp&width=548&height=768"/>
 
+- - -
+
 <img src="https://media.discordapp.net/attachments/1476777634817118269/1549371232997089340/Screenshot_20260915_114758_Tumblr.jpg?ex=6aaa73e7&is=6aa92267&hm=c7d74c4b579291331ab83011b6ea878dcb2b5fec690b7fec216a1bf403ae5817&=&format=webp&width=640&height=450"/> 
+
+- - -
+
+<img width="307" height="288" alt="image" src="https://github.com/user-attachments/assets/2663491f-7c39-4b18-9f43-fc649292d720" />
+
+They also claim that blocking them their problems (which they can't "fix") is immature, just because goldenflower didn't tell you doesn't mean you have to be told things as you have to realize you are, or your making it worse for the person and yourself btw, if you have attachment issues over people and you don't fix them, you're also pretty much asking to be blocked, you eventually have to control it, and you making friends is worse, the fact you had to add this to your strawpage looks like you just dont want your reputation to crumble over somebody saying their own side of pov and how you were to them. Even when the person doesn't want to again you have to pretty much realize? If you can't realize that then honestly that's your problem for not? Yeah some people can't catch cues like that but you kinda have to read the room to realize why so much people hid/blocked you. As long as you finally realize what you did wrong, maybe you should try to change instead of not fixing it because i wouldn't have to add this if you even tried to fix your attachment issues. The Fact you had to bring a friend to not even ask why properly i blocked you is crazy, and when people are scared to tell things and so they block you it's suddenly immature? I guess/sarc. 
+
+- - -
 
 They also made a post directed to me, i didnt treat them like a dog and i have no idea why it’s their first thought. How is anything gonna form in a week??? People dont owe dealing with ur unhealed attachment issues just bc ur friends btw… Also i guess i’m not allowed to have boundaries anymore because its weird to block people… like ok i guess!!
 
