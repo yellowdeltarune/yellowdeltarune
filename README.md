@@ -49,7 +49,21 @@
 
 <p align="center">
 <p align="center"> 
- 
+
+
+<img src="https://i.postimg.cc/y8r4DGpw/09530-EE0-D945-4-E16-A2-C3-6-E05-B4490-EAA.png"/>
+<img src="https://i.postimg.cc/15BZQXGR/022223-B3-F3-CB-478-B-8-DB4-4-D540-FD1-A49-B.png"/>
+<img src="https://i.postimg.cc/50LZk29V/38-F4-D8-D7-1-D82-405-D-933-C-EDA00-BA92927.gif"/>
+<img src="https://i.postimg.cc/xCgq2k1M/IMG_6464.gif"/>
+<img src="https://i.postimg.cc/FHtrwbVw/IMG-0011.gif"/>
+<img src="https://i.postimg.cc/9f5Dt5kR/IMG-6457.gif"/>
+<img src="https://i.postimg.cc/1X9C8dSb/IMG_6230.png"/>
+
+
+
+
+
+
 <sup><sub> Please look in the awareness tab for a little warning/awareness for anyone who has come across [was known as @RAISE-UP-YOUR-BAT is now @brutherfordceo](https://github.com/brutherfordceo ) 
 
 </p>
