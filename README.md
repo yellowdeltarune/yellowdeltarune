@@ -51,13 +51,10 @@
 <p align="center"> 
 
 
-<img src="https://i.postimg.cc/y8r4DGpw/09530-EE0-D945-4-E16-A2-C3-6-E05-B4490-EAA.png"/>
-<img src="https://i.postimg.cc/15BZQXGR/022223-B3-F3-CB-478-B-8-DB4-4-D540-FD1-A49-B.png"/>
-<img src="https://i.postimg.cc/50LZk29V/38-F4-D8-D7-1-D82-405-D-933-C-EDA00-BA92927.gif"/>
-<img src="https://i.postimg.cc/xCgq2k1M/IMG_6464.gif"/>
-<img src="https://i.postimg.cc/FHtrwbVw/IMG-0011.gif"/>
-<img src="https://i.postimg.cc/9f5Dt5kR/IMG-6457.gif"/>
-<img src="https://i.postimg.cc/1X9C8dSb/IMG_6230.png"/>
+
+<p align="center">$\color{#ffea99}{\textsf{ 𓏲⠀⠀..　blue yume (NS)　.ㅤㅤ　romeo yume (SS)　𓎟𓎟   }}$ <img src="https://gifs.crd.co/assets/images/gallery03/22ae1c44.gif?v=dd5ac741"/>
+<p align="center"> <img src="https://i.postimg.cc/mrtY7ZJh/IMG-9215.gif"/> $\color{#b2c3e1}{\textsf{ deltarune　♡　mcsm　♡　dw    }}$
+<p align="center">$\color{#FFF9E7}{\textsf{ 　　c+h enc　　﹕　　possible adhd, autism and ptsd　　﹕　　cred to artist　　  }}$ <img src="https://i.postimg.cc/PxR8pr1M/IMG_1680.gif"/>
 
 
 
