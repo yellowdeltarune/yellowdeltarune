@@ -26,7 +26,7 @@
 <div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=JUSTICE&color=bb9c63" /> 
 
 
-<p align="center">$\color{#ffea99}{\textsf{ 𓏲⠀⠀..　he / him　.ㅤㅤ　15yo　　bpd　𓎟𓎟　yellow fictkin   }}$ <img src="https://gifs.crd.co/assets/images/gallery03/22ae1c44.gif?v=dd5ac741"/>
+<p align="center">$\color{#ffea99}{\textsf{ 𓏲⠀⠀..　he / him / they　.ㅤㅤ　15yo　　bpd　𓎟𓎟　yellow fictkin   }}$ <img src="https://gifs.crd.co/assets/images/gallery03/22ae1c44.gif?v=dd5ac741"/>
 <p align="center"> <img src="https://i.postimg.cc/mrtY7ZJh/IMG-9215.gif"/> $\color{#b2c3e1}{\textsf{ iwec　♡　sometimes semi or non verbal　♡　mostly offtab w2i    }}$
 <p align="center">$\color{#FFF9E7}{\textsf{ 　　basic dni　　﹕　　open 2 chat (most of the time)　　﹕　　bmf!　　  }}$ <img src="https://i.postimg.cc/PxR8pr1M/IMG_1680.gif"/>
 <p align="center">$\color{#855c33}{\textsf{ ♡ }}$ 
