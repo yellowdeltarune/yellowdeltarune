@@ -7,8 +7,9 @@
 
 </td>
 
-
-
+<div align="center">
+ 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=10&duration=2100&pause=1000&color=9C785F&center=true&vCenter=true&width=435&lines=Hey+ya'll%2C+wanted+to+give+my+thanks!;For+illuminatin'+the+truth..;Criminells+like+me+deserve+the+boot!;%28wails+the+saddened+sheriff%29;Nothin'+ruffles+my+petals+more..;Than+an+outlaw+runnin'+amok!;We're+up+to+me%2C+they'd+all+get+struck..;...;With+a+truck.;They+take+what's+not+their's..;Never+play+fair!;Bully+innocents+without+a+care!;Cowardice+stuffed+inside+a+mean+ol'+square..;On+my+heart%2C+i+swear..+Felons+beware.;The+Hammer+of+justice'll+beat+you+scared.;Criminells+far+and+wide+you+best+prepare.." alt="Typing SVG" /></a>
 
 
 
