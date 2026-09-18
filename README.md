@@ -68,7 +68,11 @@ $\color{#855c33}{\textsf{ ૮ ․ ․ ྀིა }}$
 
 
 
-
+<table>
+<tr>
+<td width="30%">
+ <p align="center">
+  
 <sup><sub> Please look in the awareness tab for a little warning/awareness for anyone who has come across [was known as @RAISE-UP-YOUR-BAT is now @brutherfordceo](https://github.com/brutherfordceo ) 
 
 </p>
@@ -87,7 +91,7 @@ $\color{#855c33}{\textsf{ ૮ ․ ․ ྀིა }}$
 
 - - -
 
-<p align="center">
+<div align="center">
 
 anyone who's friends with [@brutherfordceo](https://github.com/brutherfordceo) , 
 
