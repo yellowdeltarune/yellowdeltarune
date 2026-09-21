@@ -43,7 +43,7 @@ $\color{#855c33}{\textsf{ ♡ }}$
 
 <div align="center">
  
-<sup><sub> tysm [@fans-town](https://github.com/fans-town) , [@pt-loveforfictional](https://github.com/pt-loveforfictional)  , [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) , [@pt-friendships](https://github.com/pt-friendships) , [@kaotown](https://github.com/kaotown) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) , [@Ponytowns-ships](https://github.com/Ponytowns-ships) , [@PT-FANtastic-hall](https://github.com/PT-FANtastic-hall) , [@pt-ship-nominations](https://github.com/pt-ship-nominations) , [@choco-town](https://github.com/choco-town), [@pt-heavyfictkin](https://github.com/pt-heavyfictkin), [@music-town](https://github.com/music-town) , [@ponyhonors](https://github.com/ponyhonors) </sub></sup>  
+<sup><sub> tysm [@fans-town](https://github.com/fans-town) , [@pt-loveforfictional](https://github.com/pt-loveforfictional)  , [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) , [@pt-friendships](https://github.com/pt-friendships) , [@kaotown](https://github.com/kaotown) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) , [@Ponytowns-ships](https://github.com/Ponytowns-ships) , [@PT-FANtastic-hall](https://github.com/PT-FANtastic-hall) , [@pt-ship-nominations](https://github.com/pt-ship-nominations) , [@choco-town](https://github.com/choco-town), [@pt-heavyfictkin](https://github.com/pt-heavyfictkin), [@music-town](https://github.com/music-town) , [@ponyhonors](https://github.com/ponyhonors) , [@appreciation-pt](https://github.com/appreciation-pt) </sub></sup>  
 <p align="center">
 
  
