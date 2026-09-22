@@ -58,7 +58,7 @@ $\color{#855c33}{\textsf{ ♡ }}$
 
 
 
-<p align="center">$\color{#ffea99}{\textsf{ 𓏲⠀⠀..　blue yume (NS)　.ㅤㅤ　romeo yume (SS)　𓎟𓎟   }}$ <img src="https://gifcity.carrd.co/assets/images/gallery03/86ec2fb8.gif?v=3fc8f5cd"/>
+<p align="center">$\color{#ffea99}{\textsf{ 𓏲⠀⠀..　blue yume (NS)　.ㅤㅤ　romeo yume (SS)　.ㅤㅤ soulvester yume (VS) 　　.ㅤㅤ　　 dyle yume (SS)　𓎟𓎟   }}$ <img src="https://gifcity.carrd.co/assets/images/gallery03/86ec2fb8.gif?v=3fc8f5cd"/>
 <p align="center"> <img src="https://gifcity.carrd.co/assets/images/gallery284/d480b238.gif?v=3fc8f5cd"/> $\color{#b2c3e1}{\textsf{ deltarune　♡　mcsm　♡　dw   ♡　doors ♡ }}$
 <p align="center">$\color{#FFF9E7}{\textsf{ 　　c+h enc　　﹕　　possible adhd, autism and ptsd　　﹕　　cred to artist　　  }}$ <img src="https://gifcity.carrd.co/assets/images/gallery03/2948ff32.gif?v=3fc8f5cd"/>
 <p align="center">$\color{#855c33}{\textsf{ ૮ ᴖﻌᴖ ა }}$ 
