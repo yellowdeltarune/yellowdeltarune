@@ -25,6 +25,7 @@
  
 <div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=JUSTICE&color=bb9c63" /> 
 
+<sup><sub> yumeshipping saved my life btw, please intwc anti-yumes , dni soulvester doubles please :]
 
 <p align="center">$\color{#ffea99}{\textsf{ 𓏲⠀⠀..　he / him / they　.ㅤㅤ　15yo　　bpd　𓎟𓎟　yellow fictkin   }}$ <img src="https://gifs.crd.co/assets/images/gallery03/22ae1c44.gif?v=dd5ac741"/>
 <p align="center"> <img src="https://i.postimg.cc/mrtY7ZJh/IMG-9215.gif"/> $\color{#b2c3e1}{\textsf{ iwec　♡　sometimes semi or non verbal　♡　mostly offtab w2i    }}$
